@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Aspiring Software Developer<br>🌱 I’m currently learning
+🔭 Aspiring AI/ML Engineer<br>🌱 I’m currently learning
 
 
 ## 🌐 Socials:
